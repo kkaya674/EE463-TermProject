@@ -1,0 +1,9 @@
+Alınacaklar: 
+
+
+
+
+Labda olanlar: 
+
+
+
